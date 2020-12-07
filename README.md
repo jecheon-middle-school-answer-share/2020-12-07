@@ -119,6 +119,13 @@ __핵심역량 더 키우기 2__
 ### 바로가기
 [역사 바로가기](https://rang.edunet.net/class/G000325407/hmwkppList.do?hmwkSeq=717319&hmwkTypeCd=ALL)
 ### 문제
+```
+1. 6.25 전쟁의 결과를 인적, 물적 피해 측면에서 각각 1가지씩 적어봅시다.
+
+2. 지난 수업에 이어서 오늘 6.25 전쟁과 관련된 동영상을 시청하고 새롭게 알게 된 점, 느낀점, 자신의 생각 등을 2줄 이내로 자유롭게 작성해봅시다. (정답은 없으니 자신의 생각을 반영해서 써주세요. 다른 친구꺼 복붙ㄴㄴ)
+```
 ### 정답
+### 참고 자료
+[![Youtube](http://img.youtube.com/vi/Gs-g-jamDpA/0.jpg)](https://www.youtube.com/embed/Gs-g-jamDpA "Youtube")
 
 ## 7교시 - 스포츠
